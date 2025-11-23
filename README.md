@@ -6,4 +6,4 @@ Working on Python.
 
 Decision Records, more development....
 
-boot.dev
+Working on more lessons today, but keep the streak going.
