@@ -6,4 +6,4 @@ Working on Python.
 
 Decision Records, more development....
 
-Working on more lessons today, but keep the streak going. Happy Thanksgiving.
+Working on more lessons today, but keep the streak going. Happy Thanksgiving..
