@@ -12,4 +12,4 @@ Merry Christmas and Happy New Year! ~ moojjoo ; )
 
 Great day today...
 
-nice.
+nice!
