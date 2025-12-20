@@ -14,4 +14,4 @@ Great day today....
 
 nice!
 
-## Learning
+## Learning AI
