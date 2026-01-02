@@ -16,4 +16,4 @@ nice!
 
 ## Learning AI.
 
-Happy New Year 2026
+Happy New Year 2026.
