@@ -14,6 +14,6 @@ Great day today....
 
 nice!
 
-## Learning AI.
+## Learning AI..
 
 Happy New Year 2026.
