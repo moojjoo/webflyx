@@ -18,4 +18,6 @@ nice!
 
 ## Learning AI.
 
+Keep Learning.
+
 Happy New Year 2026.
