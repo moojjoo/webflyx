@@ -4,7 +4,7 @@
 
 Moojjoo commit for boot.dev.  Wow it works....
 
-Working on Python.
+Working on Python..
 
 Decision Records, more development...
 
