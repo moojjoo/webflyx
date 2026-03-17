@@ -2,17 +2,17 @@
 
 [boot.dev](http://boot.dev)
 
-Moojjoo commit for boot.dev.  Wow it works......
+Moojjoo commit for boot.dev.  Wow it works.
 
-Working on Python.....
+Working on Python.
 
-Decision Records, more development....
+Decision Records, more development.
 
 Working on more lessons today, but keep the streak going. 
 
-Merry Christmas and Happy New Year! ~ moojjoo ; )
+Happy St. Patties Day! ~ moojjoo ; )
 
-Great day today.....
+Great day today.
 
 nice!
 
