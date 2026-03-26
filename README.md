@@ -12,7 +12,7 @@ Working on more lessons today, but keep the streak going.
 
 Happy St. Patties Day! ~ moojjoo ; )
 
-Great day today.
+Great day today..
 
 nice!
 
