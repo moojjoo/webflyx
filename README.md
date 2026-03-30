@@ -4,7 +4,7 @@
 
 Moojjoo commit for boot.dev.  Wow it works. How it is done.
 
-Working on Python...
+Working on Python.
 
 Decision Records, more development.
 
@@ -12,7 +12,7 @@ Working on more lessons today, but keep the streak going.
 
 Happy St. Patties Day! ~ moojjoo ; )
 
-Great day today..
+Great day today.
 
 nice!
 
